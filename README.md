@@ -5,5 +5,6 @@
 w2i if you cover me ill do it back
 
 
+![WhatsApp Image 2025-09-13 at 18 28 36_06566ff9](https://github.com/user-attachments/assets/00d32f54-4351-41b5-a39f-f6a4620b7ebb)
 
-![mymy](https://github.com/user-attachments/assets/7a50ee6c-812a-4f4e-b6eb-e318898516d7)
+
