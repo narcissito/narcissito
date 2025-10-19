@@ -4,7 +4,7 @@
 
 
 </p>
-<img width="3000" height="1332" alt="Untitled154_20250913191619" src="https://github.com/user-attachments/assets/d6b904c2-d7dd-497b-a89f-89ce7e56fed8" />
+<img width="3000" height="1332" alt="mymymy borf" src="https://github.com/user-attachments/assets/5b5497e0-1757-407b-800c-91b332068f8c" />
 
 
 <p align="center">
@@ -12,4 +12,4 @@
   <img src="https://64.media.tumblr.com/82841c0f439b3ff42936a7cdc64a73a8/48ab18e98b53e06b-9c/s75x75_c1/10fbb6f3f5c16fdaf8288e08eb60bf73b990b07b.gif" alt="Example Image" width="20">
 <a href="https://voya.atabook.org/">ata</a>
   
- <p align="center"> ( ˆ 𐃷 ˆ )
+ <p align="center"> 𐔌˶ˆ꒳ˆ˵𐦯‎˚˖𓍢ִ໋❀
